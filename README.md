@@ -1,1 +1,4 @@
-# ONYEISI
+# Software developer
+
+###  EDUCATION
+BSC
